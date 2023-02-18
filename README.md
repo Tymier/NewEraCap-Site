@@ -1,1 +1,1 @@
-# NewEraCap-Site
+# New Era inspired Site
